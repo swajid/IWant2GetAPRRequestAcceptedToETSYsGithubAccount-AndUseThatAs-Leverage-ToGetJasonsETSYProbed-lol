@@ -15,3 +15,7 @@ THAT I GOT A PR REQUEST accepted on etsy's github account LOL I WANNA DO IT
 JASONS gonna FREAK OUT if i write that in my personal statement or CV
 
 pretty interesting, https://github.com/etsy/terraform-demux ha! demux -> demultiplex
+
+or i can use something they built, it doesnt seem like the most active github account
+
+THE WORD **ETSY** IS GOING IN MY PERSONAL STATEMENT
