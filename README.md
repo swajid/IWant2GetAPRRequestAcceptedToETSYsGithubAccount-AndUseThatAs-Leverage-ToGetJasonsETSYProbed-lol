@@ -7,3 +7,9 @@ like why is jason selling tshirts on ETSY i want a full report
 WELL IM THE ONE WITH FREE TIME bahahahahaha
 
 i wanna use it as LEVERAGE to walk into their office in bk and be like, give me the FULL REPORT like whats jason doing
+
+OMG I CAN WRITE IT IN MY PERSONAL STATEMENT
+
+THAT I GOT A PR REQUEST accepted on etsy's github account LOL I WANNA DO IT
+
+JASONS gonna FREAK OUT if i write that in my personal statement or CV
