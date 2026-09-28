@@ -19,3 +19,8 @@ pretty interesting, https://github.com/etsy/terraform-demux ha! demux -> demulti
 or i can use something they built, it doesnt seem like the most active github account
 
 THE WORD **ETSY** IS GOING IN MY PERSONAL STATEMENT
+
+**Staff Machine Learning Engineer I, Search Retrieval**
+
+https://careers.etsy.com/jobs/staff-machine-learning-engineer-i-search-retrieval-brooklyn-new-york-united-states OK this is my dream job now i gotta do it, gotta apply to this, pref given to ppl near brooklyn OK GREAT
+
