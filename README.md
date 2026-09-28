@@ -5,3 +5,5 @@ like why is jason selling tshirts on ETSY i want a full report
 "dont give someone with too much free time something to do" - my undergrad research advisor for bioinformatics.
 
 WELL IM THE ONE WITH FREE TIME bahahahahaha
+
+i wanna use it as LEVERAGE to walk into their office in bk and be like, give me the FULL REPORT like whats jason doing
