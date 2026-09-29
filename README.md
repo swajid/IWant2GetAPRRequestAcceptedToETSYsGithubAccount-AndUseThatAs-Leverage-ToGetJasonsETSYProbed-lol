@@ -26,5 +26,5 @@ https://careers.etsy.com/jobs/staff-machine-learning-engineer-i-search-retrieval
 
 https://www.youtube.com/watch?v=NAdQyjpOfrs if i cant get a pull request accepted into ETSY and/or get an interview at ETSY for SE/ML etc position, and write about it on my personal statement for 1/2 a sentence, then what's all this been about? WHATS THE POINT. that's the GREATEST thing i could write on my personal statement.
 
-
+AND if i get an offer from ETSY + get company shares -> jason selling tshirts on ETSY would be technically my employee. DONE. it's now gotta happen this way.
 
