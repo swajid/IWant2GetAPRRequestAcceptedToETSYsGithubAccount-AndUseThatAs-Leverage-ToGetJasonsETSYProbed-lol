@@ -24,3 +24,7 @@ THE WORD **ETSY** IS GOING IN MY PERSONAL STATEMENT
 
 https://careers.etsy.com/jobs/staff-machine-learning-engineer-i-search-retrieval-brooklyn-new-york-united-states OK this is my dream job now i gotta do it, gotta apply to this, pref given to ppl near brooklyn OK GREAT
 
+https://www.youtube.com/watch?v=NAdQyjpOfrs if i cant get a pull request accepted into ETSY and/or get an interview at ETSY for SE/ML etc position, and write about it on my personal statement for 1/2 a sentence, then what's all this been about? WHATS THE POINT. that's the GREATEST thing i could write on my personal statement.
+
+
+
